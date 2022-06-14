@@ -1,4 +1,4 @@
-# Instagram Posts of Macro-Influencers in Dezember 2019
+# Instagram Posts of Macro-Influencers in December 2019
 
 ## Data
 
